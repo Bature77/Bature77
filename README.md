@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Bature77
+- 👋 Hi, I’m Dan-Sheehu
 - 👀 I’m interested in ...TECH SKILLS
 - 🌱 I’m currently learning ... INFOTECH
 - 💞️ I’m looking to collaborate on ... TECHNOLOGY SKILLS
